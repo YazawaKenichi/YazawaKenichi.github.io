@@ -1,4 +1,1 @@
 # YazawaKenichi.github.io
-
-soiya
-
